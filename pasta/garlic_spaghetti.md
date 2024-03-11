@@ -2,9 +2,6 @@
 
 ## Ingredients
 
-- Ingredient 1
-- Ingredient 2
-
 - Spaghetti (enough for your serving size)
 - 2-3 cloves of garlic, finely chopped or minced
 - Olive oil (2-3 tablespoons)
