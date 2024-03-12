@@ -16,7 +16,6 @@
 - place the filtrate in a glass bottle
 - keep it in the frige up to 4 -5 days
 
-Enjoy :)
 
 ## Note
 
