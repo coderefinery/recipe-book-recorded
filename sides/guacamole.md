@@ -19,4 +19,5 @@
 - squeeze lime
 - add salt
 - and mix well
+- sprinkle finely chopped cilantro on top
 - enjoy!
