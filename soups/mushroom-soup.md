@@ -13,7 +13,7 @@
 - **Salt and black pepper** to taste
 - **2 tablespoons** all-purpose flour (optional, for thickening)
 - **Fresh parsley** chopped, for garnish
-- **Crusty bread** for serving
+- **Crusty bread roasted in olive oil and herbs** for serving
 
 
 ## Instructions
