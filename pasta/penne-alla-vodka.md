@@ -25,4 +25,4 @@ Add tomato paste and Vodka and stir for 2 minutes until most of the vodka has ev
 Add tomatoes, salt, and red pepper flakes. Mash up the tomatoes with your spatula and simmer the sauce partially covered over low heat for 15 minutes, stirring occasionally. Meanwhile, start cooking the pasta so it’s ready at the same time as your sauce.
 Bring a large pot of water to a boil for pasta. Season pasta water generously with salt (it should have enough salt to taste like ocean water). Once the water has boiled, add pasta and stir several times to keep the pasta from sticking. Cook until al dente according to pasta instructions. Reserve 1/2 cup of pasta cooking water.
 Stir whipping cream into the sauce then add shredded cheese and return to a simmer.
-Add cooked pasta directly from the cooking water, adding a couple of Tbsp of pasta water at a time to make it saucier. Season with salt then serve garnished with more cheese if desired, parsley, or basil.
+Add cooked pasta directly from the cooking water, adding a couple of Tbsp of pasta water at a time to make it saucier. Season with salt then serve garnished with more cheese if desired (definitely), parsley, or basil.
