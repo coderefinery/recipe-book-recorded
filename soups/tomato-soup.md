@@ -4,9 +4,13 @@
 
 - Tomatoes
 - Water
+- Salt and pepper
+- Onion
+- Garlic
 
 
 ## Instructions
 
-- Step 1
-- Step 2
+- Cut the vegetables
+- Fry the onion
+- Fry the garlic
