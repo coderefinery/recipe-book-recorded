@@ -8,7 +8,5 @@
 - peas
 - mushrooms
 - onions
-- mango
-
-
+- watermelon
 ## TODO: we need the instructions
