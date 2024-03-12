@@ -12,7 +12,6 @@
 - **1/2 teaspoon** salt
 - **black pepper** to taste
 - **1 tablespoon** apple cider vinegar
-- **Fresh parsley** chopped, for garnish
 - **Crusty bread** for serving
 
 
@@ -31,5 +30,5 @@
    - Cool slightly and transfer to a blender. Blend until smooth. 
 
 4. **Serve:**
-   - Ladle the soup into bowls and garnish with fresh parsley. Serve with
+   - Ladle the soup into bowls. Serve with
      crusty bread on the side for dipping.
