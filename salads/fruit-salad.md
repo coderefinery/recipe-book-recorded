@@ -12,7 +12,7 @@
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
   of zing)
 - Fresh mint leaves (optional, for garnish)
-
+-1 pineapple
 
 ## Instructions
 
