@@ -8,6 +8,7 @@
 - peas
 - mushrooms
 - onions
+- mango
 
 
 ## TODO: we need the instructions
