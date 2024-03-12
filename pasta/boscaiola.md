@@ -8,8 +8,7 @@
 - peas
 - mushrooms
 - onions
-
-
+- watermelon
 ## TODO: we need the instructions
 
 - Cook pasta
