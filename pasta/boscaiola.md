@@ -10,4 +10,5 @@
 - onions
 
 
-## TODO: we need the instructions
+## instructions
+- mix it
