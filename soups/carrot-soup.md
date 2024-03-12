@@ -10,7 +10,7 @@
 - **1 tablespoon** olive oil 
 - **3 cups** vegetable broth
 - **1/2 teaspoon** salt
-- **black pepper** to taste
+- **1/4 teaspoon** black pepper to taste
 - **1 tablespoon** apple cider vinegar
 - **Crusty bread** for serving
 
