@@ -2,15 +2,23 @@
 
 ## Ingredients
 
-▢ 175g/6 oz guanciale (pancetta or block bacon), weight after skin removed (Note 1)
+▢ 175g/6 oz guanciale (pancetta or block bacon), weight after skin removed 
+
 ▢ 2 large eggs (Note 2)
+
 ▢ 2 egg yolks (Note 2)
-▢ 100g/3.5 oz parmigiano reggiano , finely shredded (or pecorino romano, sub parmesan, Note 3)
+
+▢ 100g/3.5 oz parmigiano reggiano , finely shredded (or pecorino romano, sub parmesan)
+
 ▢ 1/4 tsp black pepper
+
 ▢ 400g/14 oz spaghetti
+
 ▢ 1 tbsp cooking/kosher salt (for cooking pasta)
+
 ▢ 1/2 cup pasta cooking water
-▢ 1 garlic clove , finely minced (optional, Note 4)
+
+▢ 1 garlic clove , finely minced (optional)
 
 
 ## Instructions
