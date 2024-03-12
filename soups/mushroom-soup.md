@@ -12,6 +12,7 @@
 - **1 cup** (240ml) heavy cream or coconut milk for a vegan option
 - **Salt and black pepper** to taste
 - **2 tablespoons** all-purpose flour (optional, for thickening)
+- **parmigiana** add a piece to the soup while cooking
 - **Fresh parsley** chopped, for garnish
 - **Crusty bread** for serving
 
