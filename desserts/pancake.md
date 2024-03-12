@@ -1,1 +1,5 @@
-This is a pancake recipe
+Ingredients:
+  -Usual pancake ingredients
+
+Instructions:
+  -Make pancakes
