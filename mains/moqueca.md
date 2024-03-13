@@ -12,7 +12,7 @@
 - palm oil (azeite de dende)
 - 2 limes
 - 2 chillies (optional)
-- coconut milk
+- 2 cups of coconut milk
 
 ## Instructions
 - make a sauce putting the lime, cilantro and green pepper in the blender
