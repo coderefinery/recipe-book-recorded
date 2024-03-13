@@ -3,10 +3,10 @@
 
 ## Ingredients
 
-- **10 lb** (4500g) mixed mushrooms (e.g., button, cremini, shiitake), cleaned and sliced
+- **1 lb** (450g) mixed mushrooms (e.g., button, cremini, shiitake, girolle), cleaned and sliced
 - **2 tablespoons** olive oil or unsalted butter
 - **1** medium onion, diced
-- **2** garlic cloves, minced
+- **4** garlic cloves, minced
 - **1 teaspoon** fresh thyme leaves (or ½ teaspoon dried thyme)
 - **4 cups** (about 950ml) vegetable or chicken broth
 - **1 cup** (240ml) heavy cream or coconut milk for a vegan option

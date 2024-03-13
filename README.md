@@ -4,6 +4,7 @@ We use this repository to teach Git and also to collect
 some nice recipes.
 
 
+
 ## Categories
 
 - [salads](salads)
@@ -12,3 +13,4 @@ some nice recipes.
 - [mains](mains)
 - [sides](sides)
 - [desserts](desserts)
+- [pinchos](pinchos)
