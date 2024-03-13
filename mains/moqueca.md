@@ -11,11 +11,12 @@
 - 1 medium fish
 - palm oil (azeite de dende)
 - 2 limes
+- 2 chillies (optional)
 - coconut milk
 
 ## Instructions
-
-- marinate the fish for a day with the lime and green pepper
-- cook it all together in a pan until fish is cooked and vegetables soft 
+- make a sauce putting the lime, cilantro and green pepper in the blender
+- marinate the fish for a day with this sauce
+- cook it all together in a pan until fish is cooked and vegetables soft
 
 -
