@@ -11,3 +11,6 @@
 
 
 ## TODO: we need the instructions
+
+- Cook pasta
+- Prepare the sauce
