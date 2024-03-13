@@ -8,7 +8,7 @@
 - 1 lime
 - 1 tsp salt
 - 1/2 onion
-- 3 Tbsp cilantro
+- 2 Tbsp cilantro
 
 
 ## Instructions
